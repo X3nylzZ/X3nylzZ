@@ -1,3 +1,3 @@
-![This is a image]([https://github.com/X3nylzZ/hihi-/blob/acff3072885d1a05942ad3a750728f956230d23f/evade.jpe](https://github.com/X3nylzZ/X3nylzZ/blob/main/evade.png?raw=true))
+![This is a image](https://github.com/X3nylzZ/X3nylzZ/blob/main/evade.png?raw=true)
 
 $\color{#DBECFF}{\textsf{hׁׅ֮ꪱׁׅhׁׅ֮ꪱׁׅ!!}}$
